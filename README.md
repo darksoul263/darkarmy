@@ -1,2 +1,2 @@
 # darkarmy
-i put different scrips inn this repository
+hie guys im darksoul, interested in hacking and still at beginner level
